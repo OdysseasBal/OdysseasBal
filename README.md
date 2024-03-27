@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OdysseasBal
+- 🌱 I'm currently studying computer science in CEID.
+- 📫 How to reach me: odysseasbalatsouras@gmail.com
